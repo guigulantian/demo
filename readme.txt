@@ -1,2 +1,0 @@
-i am a girl
-i am a boy
